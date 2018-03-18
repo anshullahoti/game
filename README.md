@@ -1,3 +1,3 @@
 # game
 It is my first game
-kya
+achcha chlta hun 
