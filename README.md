@@ -1,3 +1,3 @@
 # game
 It is my first game
-achcha chlta hun 
+achcha chlta hun, duaon mein yaad rkhna
